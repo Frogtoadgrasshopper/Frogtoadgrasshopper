@@ -2,7 +2,7 @@
 - 👀 I’m interested in python, cybersecurity, game development, and frogs.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on games and other projects.
-- 📫 How to reach me: Gmail:manlabaoramiel@gmail.com, Tiktok: @remiel_.
+- 📫 Gmail:manlabaoramiel@gmail.com, Tiktok: @remiel_.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like toads, frogs and grasshoppers. I dont like liver.
 
